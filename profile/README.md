@@ -1,1 +1,1 @@
-- ✨ Let's build something amazing together. Reach out today!
+- ✨ Building the missing pieces between humans and machines, one component at a time.
